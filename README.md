@@ -2,7 +2,7 @@
 万赢官方地址 wy7.top
 
 万赢官方地址 最新地址发布
-永 久 域 名 https://github.com/kdchao
+永 久 域 名 https://github.com/wanyingguanwang/wy7.top
 
 ##⭐️👉访问最新地址1：https://wy288.top
 
