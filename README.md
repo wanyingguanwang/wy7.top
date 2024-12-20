@@ -4,13 +4,9 @@
 万赢官方地址 最新地址发布
 永 久 域 名 https://github.com/wanyingguanwang/wy7.top
 
-##⭐️👉访问最新地址1：https://wy288.top
-
 ##⭐️👉访问最新地址2：https://wy4.top
 
-##⭐️👉访问最新地址3：https://wy688.top
-
-##⭐️👉访问最新地址4：https://wy388.top
+##⭐️👉访问最新地址3：https://wy7.top
 
 ##⭐️👉访问最新地址5：https://web-133811gqmlc-fndvd9bkfaf8duay.a03.azurefd.net
 
