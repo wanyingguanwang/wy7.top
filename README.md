@@ -12,9 +12,9 @@
 
 ##⭐️👉访问最新地址4：https://wy388.top
 
-##⭐️👉访问最新地址5：https://wy7.top 
+##⭐️👉访问最新地址5：https://web-133811gqmlc-fndvd9bkfaf8duay.a03.azurefd.net
 
-##⭐️👉访问最新地址6：https://wy4.top
+##⭐️👉访问最新地址6：https://138.113.7.186:5012
 
 ##⭐️👉访问最新地址7：https://wy2.top
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
